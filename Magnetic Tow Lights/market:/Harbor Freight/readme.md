@@ -1,1 +1,2 @@
-[Harbor Freight led magnetic tow lights](https://youtu.be/-5m2TwvHuyk)
+- [Harbor Freight led magnetic tow lights](https://youtu.be/-5m2TwvHuyk)
+- [CHEEP HARBOR FREIGHT TRAILER LIGHT UPDATE](https://youtu.be/mE0ZV-Wsyqg)
